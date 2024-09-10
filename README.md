@@ -1,1 +1,1 @@
-# Jeewon Koo
+# Freshman-Project
